@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# Kuan-Cheng Lin
+Hi! I am currently an undergraduate student, 
+
+
